@@ -83,12 +83,19 @@
 How can you be so apathetic about the world and its problems? 你怎么能对这个世界以及其中存在的问题如此无动于衷？
 
 1. I'm fed up with the way she leaves her rubbish on the floor! 她总是把垃圾扔在地上，我受够了
+
 2. 有关于个人的擅长
    1. be proficient in 在什么方面很精通
    2. be adept at熟练地
    3. have an aptitude for 对什么有天赋
    4. versatile 多才多艺的
+
 3. You will be employed to assist in the development of new equipment. 你将受聘协助开发新设备。
+
 4. Her health has improved by leaps and bounds. 她的健康已迅速好转。
+
 5. Facebook complied with the board's decisions and reinstated the posts. Facebook遵守了董事会的决定，恢复了这些帖子
-6. Smoking is detrimental to your health. 吸烟有害健康。
+
+6. Smoking is detrimental to your health. 对健康有害
+
+   
