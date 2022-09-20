@@ -68,7 +68,7 @@
 
 1. China will, if the Communist Party **has its way**, become a techno-utopia with Chinese characteristics, **replete with** “deep tech” such as cloud-computing, artificial-intelligence (AI)
 
-如果共产党**如愿以偿**，中国将成为具有中国特色的科技乌托邦，**充满**云计算、人工智能（AI）等“深度科技”
+如果共产党如愿以偿，中国将成为具有中国特色的科技乌托邦，充满云计算、人工智能（AI）等“深度科技”
 
 1. young executives who have long struggled **under the thumb of big tech**
 
